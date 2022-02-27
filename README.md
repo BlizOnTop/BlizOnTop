@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BlizOnTop
+- 👀 I’m new in this 
+- 🌱 I’m currently learning c
+- 💞️ I’m looking for someone who can help me in this journey 
+- 🎄 my mail theycallmehackrrr@gmail.com ( but i dont know hackings H )
